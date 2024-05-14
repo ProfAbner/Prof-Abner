@@ -2,7 +2,7 @@
 
 
 
-Trabalho na Escola Estadual ProFª Sandra Regina Pires
+Trabalho na Escola Estadual Profª Sandra Regina Pires
 
 Cidade de Barão de Antonina-SP
 
